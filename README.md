@@ -99,7 +99,7 @@ Ambiente escuro              Temp. = 12.5°C               Umidade = 65%
 
 ## Vídeo Explicativo
 
-[Assista aqui](https://youtu.be/W0Ew7Kdyyu4)
+[Assista aqui](https://youtu.be/NXYR0pghTmU?si=jRxmmFLynwz6QA-7)
 
 ---
 
